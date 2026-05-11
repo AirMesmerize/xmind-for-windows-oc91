@@ -1,4 +1,4 @@
-
+Enhance XMind for Windows with exclusive XMind for Windows Integration | themes + cloud-sync, the #1 integration. Includes themes and cloud-sync for a smoother and more productive
 
 
 
